@@ -6,6 +6,6 @@ steady pace. My hope is to one day port it to mobile and set up a syncing servic
 
   I'd love to get a job making, or working on, programs that other people or businesses need to better their lives or business. Because I don't have any work experience in the 
 software engineering field, I am more than willing to take on internships to build the necessary skills and experience I would need for my desired position. If you like what I'm 
-doing or are have an opportunity that you think I would fit into well you can contact me at tyler.kimbell@live.com 
+doing or are have an opportunity that you think I would be a good fit for you can contact me at tyler.kimbell@live.com 
 
 Thank you for reading this! I hope you have a good day. 
